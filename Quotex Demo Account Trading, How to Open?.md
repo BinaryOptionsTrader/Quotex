@@ -2,7 +2,7 @@
 
 Welcome to the ultimate guide on **_Quotex demo_**, the essential tool for both beginner and professional binary options traders. In this detailed article, we will walk you through everything you need to know about **_Quotex demo account_**, from registration to verification, and even how to transition from demo to real trading. Let's dive in!
 
-> 💥[**_Quotex broker review 2025_**](https://github.com/BinaryOptionsTrader/Quotex/blob/main/Quotex%20Review%202025%3A%20Is%20Legit%2C%20Regulated%2C%20Safe%20and%20Trust%20Broker.md): ✔Best Digital Trading ✔Innovate platform and fast ✔Free practice with demo acoout ✔Minimum deposit amount $10 ✔Support 24/7 👉[Create a free demo account -> Link here](https://broker-qx.pro/sign-up/?lid=933307) 👈
+> 💥[**_Quotex broker review 2025_**](https://github.com/BinaryOptionsTrader/Quotex/blob/main/Quotex%20Review%202025%3A%20Is%20Legit%2C%20Regulated%2C%20Safe%20and%20Trust%20Broker.md): ✔Best Digital Trading ✔Innovate platform and fast ✔Free practice with demo account ✔Minimum deposit amount $10 ✔Support 24/7 👉[Create a free demo account -> Link here](https://broker-qx.pro/sign-up/?lid=933307) 👈
 
 ## **_Quotex Account Types, Which Is Better?_**
 
