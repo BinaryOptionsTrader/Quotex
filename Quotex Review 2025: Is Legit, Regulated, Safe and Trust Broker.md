@@ -31,7 +31,7 @@ As the landscape of online trading continues to evolve in 2025, traders seek pla
 
 ---
 
-## What is Quotex?
+## Quotex broker review 2025
 
 Quotex is a digital trading platform founded in 2019. The broker has focused on offering binary and digital options trading with fixed-time trades. Quotex has built a user-friendly interface, targeting both beginners and seasoned traders. By 2025, it has garnered a sizable user base globally due to its fast execution, modern UI, and low minimum deposits.
 
@@ -76,7 +76,7 @@ By 2025, Quotex has taken steps to enhance compliance, including:
 
 ### Types of Accounts
 
-- **Demo Account**: Free with $10,000 virtual funds, no time limit  👉 [Open demo Account link here](https://broker-qx.pro/sign-up/?lid=933307)👈  
+- [**Quotex Demo Account**](https://github.com/BinaryOptionsTrader/Quotex/blob/main/Quotex%20Demo%20Account%20Trading%2C%20How%20to%20Open%3F.md): Free with $10,000 virtual funds, no time limit  👉 [Open demo Account link here](https://broker-qx.pro/sign-up/?lid=933307)👈  
 - **Standard Account**: Minimum deposit $10, access to full trading features  
 - **Pro Account (2025 update)**: Offers tighter spreads and exclusive strategies for frequent traders
 
