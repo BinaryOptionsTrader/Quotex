@@ -3,7 +3,7 @@
 Binary options trading continues to gain popularity in 2025, and among the top platforms leading this trend is **Quotex**. Whether you're just starting out or you're a seasoned trader looking for a new platform, this in-depth **Quotex review** covers everything you need to know. From its core features to real-user feedback, pros and cons, trading tools, security, and even payout rates — we've got you covered.
 
 
-[Click herre](https://broker-qx.pro/sign-up/?lid=598445)
+[Click here](https://broker-qx.pro/sign-up/?lid=598445)
 
 ---
 
